@@ -1,0 +1,4 @@
+- 👋 Hi, AINAMANI CHRISTIAN, Github username: @Christian007-J
+- 👀 I’m interested in Data Science, Machine learning and Web development
+- 🌱 I’m currently pursuing a Bachelor's degree of Science in Computer Science at Mbarara University of Science and Technology 
+- 📫 Reach me on +256759009165/ +256760760866/ ainamanichristian964@gmail.com
